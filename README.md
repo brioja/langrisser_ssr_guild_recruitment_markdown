@@ -1,20 +1,22 @@
-#### Guild Name
+**Guild Name**
+
 SSR
 
-#### Guild Leader
+**Guild Leader**
+
 Godgirl with Katakuri and Akka j as vice leaders.
 
-#### Region(s)
+**Server**
+
 Ancient Ruin
 
-#### Type
+**Type** 
+
 PvP and PvE. We do it all.
 
-#### Recruitment Message:
+**Description** 
 
 We are looking for new members to join us! 
-
-##### The basics
 
 We join alternating guilds to run 3x guild battles per week.
 
@@ -26,7 +28,7 @@ In Ancient Beckoning, our members hold spots 1, 2, and 5 as well as many other p
 
 For PvP, although we are not the best PvP guild in the server, we have some stronger players with a few of our members going deep into playoffs.
 
-##### What sets our guild apart
+** What sets our guild apart ** 
 
 The best thing about our guild is that we always take the time to help out our guild members when they are stuck on something. For the last Endless Voyage Event, everyone who asked for help was able to complete the event. 
 
