@@ -24,7 +24,7 @@ Because we are usually swapping guilds on the weekend, we ask members to join ou
 
 For Dimensional Expedition, we have placed second... every time. We want some more active members so we can change that next time around. 
 
-In Ancient Beckoning, our members hold spots 1, 2, and 5 as well as many other positions in the top 20.
+In Ancient Beckoning, our members hold the first second and third spot as many other positions in the top 20.
 
 For PvP, although we are not the best PvP guild in the server, we have some stronger players with a few of our members going deep into playoffs.
 
