@@ -4,7 +4,7 @@ SSR
 
 **Guild Leader**
 
-Godgirl with Katakuri and Akka j as vice leaders.
+Godgirl with Katakuri, Akka j, and Master Captain as vice leaders.
 
 **Server**
 
